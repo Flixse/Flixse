@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Flixse
+- 👀 I’m interested in Learning new things.
+- 🌱 I’m currently learning Java/C++/C/Python/...
+- 💞️ I’m looking to collaborate on Many things
